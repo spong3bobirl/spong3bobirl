@@ -1,5 +1,5 @@
 info:
-🧽 -hallo!! i'm spongebob!!👋👋
+🧽 - hallo!! i'm spongebob!!👋👋
 🐙 - i'm 14 years old, so please no freaky jokes towards me.
 🍍 - i'm transgender and bisexual!
 🪸 - please do not send any weird stuff on my atabook, or at least have common sense.
